@@ -1,2 +1,0 @@
-# JustDrewThings
-Some translations
